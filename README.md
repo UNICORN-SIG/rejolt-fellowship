@@ -1,1 +1,1 @@
-# Official Source Code - UNICORN SIG, Vardhaman College Of Engineering.
+# Official Source Code - THE REJOLT FELLOWSHIP.
